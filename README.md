@@ -1,1 +1,0 @@
-"# BELUAR_laptopandtablet" 
